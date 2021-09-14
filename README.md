@@ -1,4 +1,25 @@
-# phishing_links
+11owd.trk.elasticemail.com
+11wgz.trk.elasticemail.com
+122zh.trk.elasticemail.com
+123formbuilder.com
+1249d4d7.6u56u665y6h45g45tg3.pages.dev
+124wi.trk.elasticemail.com
+127qs.trk.elasticemail.com
+12a1j.trk.elasticemail.com
+12fmu.trk.elasticemail.com
+12gxe.trk.elasticemail.com
+12jnv.trk.elasticemail.com
+12jz9.trk.elasticemail.com
+12lb1.trk.elasticemail.com
+132artisan.lavanup.com
+13721372.32304ey.ninishop.org
+13a2-52-161-98-209.ngrok.io
+140.trendsbygwen.com
+154.30.211.130.bc.googleusercontent.com
+1626763446596-dot-snappy-analog-318608.appspot.com
+164.145.95.34.bc.googleusercontent.com
+17864-1931.s1.webspace.re
+17876-1937.s1.webspace.re
 000098.ihostfull.com
 006.zzz.com.ua
 0103023segurity.byethost14.com
